@@ -1,1 +1,1 @@
-https://69-club.ru/
+https://mshoes.vip/
